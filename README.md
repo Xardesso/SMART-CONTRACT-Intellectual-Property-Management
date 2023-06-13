@@ -1,0 +1,2 @@
+SMART CONTRACT FOR Intellectual Property Management
+WEB3 APP WILL BE MADE SOON
